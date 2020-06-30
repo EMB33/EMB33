@@ -8,4 +8,8 @@ John Rambo is a veteran of the Vietnam War. He is a former Green Beret and finds
 * has postwar mental health problems
 * seldom talks
 
+As Colonel Trautmann said:
+
+> You didn't understand me. I'm not supposed to protect Rambo from you. I came here to protect you from him.
+
 
