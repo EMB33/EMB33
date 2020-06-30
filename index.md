@@ -12,4 +12,6 @@ As Colonel Trautmann said:
 
 > You didn't understand me. I'm not supposed to protect Rambo from you. I came here to protect you from him.
 
+<img src="https://www.tvmovie.de/bilder/758/tvmm/sylvester-stallone-quotramboquot-bald-als-serie-rambo.jpg?itok=I68rqKp8"/>
+
 
